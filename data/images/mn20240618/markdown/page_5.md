@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024
-
-## Minutes
 
 **COMMISSIONER KAGAWA-VIVIANI:** Not quite how I read it, but I'm not a lawyer. The second question I had was around recommendation one. Ota Well was just on our radar, so I was going back and recalling that there were eight alternative actions for Keauhou non-designation and the first of those was, “the Commission will refer all well permit applications to ‘Aha Moku.” There's a clearly delineated process and so how would this proposed recommendation - I mean it doesn't seem to address that there are specific, close-to-designation areas that may be important for us to consider or for there to be a public process on. One, because it's already established that for Keauhou, there is a need to address the well construction or it says, “all permits.” How are we folding that in? I was going to suggest an amendment there, but how are you considering the regional specifics?
 

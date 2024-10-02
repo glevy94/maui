@@ -1,5 +1,4 @@
 ```markdown
-June 18, 2024
 
 The opportunity to assume a role in assuring the stewardship and availability of a life-enabling resource is a profound honor. I am grateful to Governor Ige for nominating me and to our State Senators for confirming my appointment. Thanks, as well, to Chairs Case and Chang, for guiding our work and to my fellow Commissioners who have been patient with my questions, respectful of my worldview and considerate of my positions. We have had a lot to do and owing to yeomen’s efforts of our dedicated staff, we have had full agendas. I observed this tone being set at the top when I visited Deputy Director Manuel one day. Kaleo had a white board on his wall that counted down the number of meetings that would occur under his watch because he believed that each meeting represented an opportunity to address the myriad issues before us. I took inspiration from his mission-driven mindset, and I am proud of what we have accomplished by working together with a sense of urgency.
 

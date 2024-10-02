@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
-
 maintained. So that we have other instream values not just ‘ōpu and ‘ōpae, but the recreational needs are met. The downstream uses are maintained, the nearshore impacts are preserved, so that I think we can find a balance where the stream is protected and the DHHL needs are met.
 
 **COMMISSIONER MIIKE:** Wait a second though, you cannot meet all of DHHL needs if you have those minimal requirements for continued stream flow, so something has to give. DHHL cannot get everything that they want in a particular…except at the cost of other off-stream users.

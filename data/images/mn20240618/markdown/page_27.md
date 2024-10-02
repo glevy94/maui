@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes
-
 analogous to the Winters Doctrine in the US where Navajo have rights of prior appropriation. Do you have that background Katie?
 
 **KATIE ROTH:** Maybe I would defer to Andrew and DHHL staff to come up and comment on that.

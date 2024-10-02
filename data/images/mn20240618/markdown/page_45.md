@@ -1,6 +1,4 @@
-```markdown
-June 18, 2024  
-Minutes  
+```markdown 
 
 Respectfully submitted,  
 **‘IWALANI KAAA**  

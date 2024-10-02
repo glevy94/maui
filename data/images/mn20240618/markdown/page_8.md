@@ -1,6 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
 
 **COMMISSIONER MIKE:** I really don't like what's happening here which is we're starting to get into such details of a delegation that it's going to be meaningless. The other thing is that I don't know of any bar that says we have to, if we're going to delegate, we have to delegate absolutely. We're only talking about delegating part of a decision making or a way of looking at things. I think it's irrelevant that we have to carve out exceptions and then we have to maybe look at rulemaking when we talk about delegation. When we want to delegate, we're going to delegate and I don't see any problems with delegating authority. Again, as I say, I'm concerned if we get into too much detail about what we're delegating, I'm fine with the language here and from the presentation that was given, the explanation is satisfactory to me.  
 

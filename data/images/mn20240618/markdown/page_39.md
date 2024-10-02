@@ -1,6 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
 
 **COMMISSIONER HANNAHS:** That satisfies the immediate issue before us, but the larger issue is that’s a lot of uses for a small amount of water. Where will the Commission be going with that, balancing there?  
 

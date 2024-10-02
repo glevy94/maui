@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024
-
-## Minutes
 
 **CHAIR CHANG:** Thank you very much, John. Dean, what is your schedule for this?
 

@@ -1,5 +1,4 @@
 ```markdown
-June 18, 2024
 
 **COMMISSIONER HANNAHS:** Thank you. You make a good point that presumably, we're doing this to make the process more efficient, but that really hasn't been explained and addressed in the report. For Ryan, perhaps, to respond. If something has to come to the Commission, what's the typical time frame for approval versus if we delegate this? How efficient would the system be? Can you help us understand the benefit as to what we gain from delegation?
 

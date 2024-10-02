@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
-
 amount of discretion that the Chairperson has or the First Deputy has. I wasn't comfortable with that either. Ryan, did you want to make a comment?  
 
 **RYAN IMATA:** Just a comment that if rulemaking affects this decision or maybe there's a question- should rulemaking affect the decision that was made in December of last year, too? Because I think it's the same thing and I think that maybe if rulemaking was an issue, that should have been an issue in December, too. I just wanted to bring that up.  

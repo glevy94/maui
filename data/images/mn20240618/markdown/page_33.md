@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
-
 it seems that we're dependent on a lot of these plans from the county, Water Use and Development Plan to the Water Protection Plan. I mean all of these should be used and living plans and some of these things are like 10 years old.
 
 **COMMISSIONER MEYER:** That is a requirement, it just doesn't get done on a timely basis.

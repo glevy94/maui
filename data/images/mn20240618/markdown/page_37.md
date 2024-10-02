@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024
-
-## Minutes
 
 **COMMISSIONER HANNAHS:** Originally, there was contemplation on a phase one and a phase two and the phase one was really done in anticipation that there would be a phase two. But now there's not going to be a phase two so we said okay, we got to go back and figure out what is essential. What was planned here that was agreed upon because that can be costed so that you can develop a dollar number that then KIUC is considering to contribute to then a whole new capital improvement plan because we've agreed that just doing a phase one as originally contemplated, it may not be optimal. The phase one made sense in the context of being a follow on phase two, but if you're not going to have a phase two, then you might use the money differently, but you got to figure out how much money and the money goes back to the agreement which was the phase one. You got to get that before you can get the money, then you can redesign with that money the best system for now.
 

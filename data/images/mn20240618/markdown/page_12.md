@@ -1,6 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
 
 **COMMISSIONER HO:** Another question. Along those lines, Ryan, you mentioned that we have 90 or that you have 90 days to issue a permit. Is the consequence if you don't issue the permit within 90 days, it will be deemed approved or what is it? I know there's a statute.
 

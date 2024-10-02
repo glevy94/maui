@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
-
 planning, we update our plans on a regular basis, as well. We do have our own cascading diagram of our planning system but our Island Plans are due for an update. Our Hawai‘i Island Plan was adopted by our Commission in 2002 and we're currently going through that planning process to update it, including the new acquisitions that the Department is acquiring on that particular island. We'll go through a similar process for all of our islands, including the new acquisitions that the recent $600 million gift from the Legislature has allowed us to acquire new lands across the State.
 
 **COMMISSIONER HANNAHS:** I would avoid using the word “gift” because it goes back to…

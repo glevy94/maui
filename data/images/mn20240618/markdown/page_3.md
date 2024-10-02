@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
-
 in terms of really optimizing certain other values other than the value of the ecosystem there and the stream functions there itself, came at a high cost. That created great risk to the environment as well as to financial interests there, the homes that constantly got flooded and so forth. We’ve done that elsewhere, that’s happened elsewhere and so we thought this would be a model or example to, what can you do? Can you go back and can you restore? I just thought it would be a worthy example for the Commission to review. Thank you.
 
 **COMMISSIONER KAGAWA-VIVIANI:** I’ll just say I remember before the restoration project, I was working part-time with SWCA with John Ford and Bob Kinzie, who has recently passed. Walking the stream - was like a highway - discussing the flooding issues. I’ve been out there and I think it’s a really good opportunity to be on site.

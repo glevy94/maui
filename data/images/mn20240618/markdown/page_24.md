@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
-
 but they have lands in Wai‘ehu that could potentially utilize non-potable water. So, we might need to modify the North Wai‘ehu IIFS to accommodate those uses.  
 
 **COMMISSIONER MIIKE:** But I'm talking about cases where usually when we set an IIFS, it's been my experience that we basically set it at the minimum that allows viable stream life, not way above it. In a case where the IIFS is at a level that any lowering of it all would harm the stream, are you saying that from your standpoint we have to do that?  

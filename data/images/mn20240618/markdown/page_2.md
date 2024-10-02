@@ -1,6 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
 
 20240618 00:07:07  
 A. APPROVAL OF MINUTES  

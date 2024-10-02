@@ -1,5 +1,4 @@
 ```markdown
-June 18, 2024
 
 **COMMISSIONER MEYER:** Okay, it just hasn't been done yet.
 

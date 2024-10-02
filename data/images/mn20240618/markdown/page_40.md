@@ -1,6 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
 
 **COMMISSIONER KATAYAMA:** Dean, from what you know about this project in the back of the envelope, what do you think the water requirement is going to be?  
 

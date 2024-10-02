@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
-
 - The work of staff who have diligently researched issues, consulted stakeholders and crafted policy-aligned recommendations for our consideration.
 - Commissioners who draw upon their knowledge, experience and problem-solving tools to resolve disputes, balance beneficial interests and fulfill our duties.
 - A humble perspective that elevates public trust considerations over our self-interests or the concerns of specific constituencies.

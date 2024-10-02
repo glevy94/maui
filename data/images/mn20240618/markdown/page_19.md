@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024
-
-## Minutes
 
 **DEPUTY AG LAU:** Then that becomes a non-action because it's conditional. What does that mean then?
 

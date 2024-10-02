@@ -1,6 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
 
 **ANDREW CHOY:** Correct, I think there are good examples of other collaboration between Commission staff and the Department in other arenas.  
 

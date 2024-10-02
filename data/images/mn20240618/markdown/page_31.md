@@ -1,5 +1,4 @@
 ```markdown
-June 18, 2024
 
 **COMMISSIONER MEYER:** I understand, what you're saying is it doesn't.
 

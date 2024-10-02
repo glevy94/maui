@@ -1,6 +1,4 @@
-```markdown
-June 18, 2024  
-Minutes  
+```markdown 
 
 **COMMISSIONER MEYER:** I see, okay it's from DHHL. You answered that question for me, thank you.  
 

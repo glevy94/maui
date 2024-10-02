@@ -1,4 +1,5 @@
 ```markdown
+
 COMMISSIONER HO: I have a question about the delegation. I understand that the proposal is to delegate to the Chair, I understand that. My question is, is this ministerial versus rulemaking? So it's a legal question. The other question I have, along the lines of what Aurora was mentioning which is, is there a certain criteria that is part of the recommendation for the Chair to make that determination as to what comes to the Commission? For the Department of Health, we have a statute that says if it is in the public interest to bring something to require a public hearing, the director may require a public hearing on a permit issue and in the statute itself it sets forth some criteria. It's a legal issue, I think, but I'm wondering how we would address that?
 
 CHAIR CHANG: Good question.

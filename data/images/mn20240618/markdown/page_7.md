@@ -1,6 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes
 
 **CHAIR CHANG:** It's been through board action. The board has authorized…
 

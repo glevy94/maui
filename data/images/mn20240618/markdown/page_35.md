@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024
-
-## Minutes
 
 **COMMISSIONER HANNAHS:** But of the reservations we have in place, how much of that is paper water did you say?
 

@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes
-
 transparent what this delegation involves. I think it's just more for like public understanding and I know you have a lot on your time, but I think it would sort of front end some of the concerns and questions, as well.
 
 **RYAN IMATA:** We can do that, yeah we can do that.

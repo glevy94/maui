@@ -1,6 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
 
 **COMMISSIONER HANNAHS:** I’d hate for the last action I take is deferral because it feels like it's kicking a can down the road, but I wonder if you're thinking - it's the right thing to do, we need to do it right. If we deferred floating the idea of should we defer so that number one, Ryan has an opportunity to consult with DHHL. They are a public trust use, beneficial use, they should have an opportunity for meaningful consultation. Secondly, to consider the other ideas and recommendations that were made here today and other feedback that you received that you can add to the recommendations. Third, to really develop a workflow diagram that takes your 700 or 800 applications and kind of runs them through a chart that then shows how many drop off and how much more efficient you get and what you're going to focus on so that the Commission can see it, as Aurora has recommended. And fourth, consult with the AG on the correct legal process for achieving these desired.  
 

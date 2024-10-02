@@ -1,6 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
 
 **COMMISSIONER MIKE:** It's the exceptions? I don't understand that at all. Here we are, we have had the delegation for what, 27 years? Nothing has come up about that. There was always the flexibility of the Chair when he or she and most of the time it's been a she, have had concerns about that was brought to the Commission for us to decide. I guess because the issue has been raised, we got to find out whether it is rulemaking or not, but from my point of view it doesn't make any sense that this is now all of a sudden the rulemaking issue has raised its head.
 

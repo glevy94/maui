@@ -1,6 +1,4 @@
 ```markdown
-June 18, 2024
-
 # Chief
 
 Staff recommended revisions to the delegations to approve well and pump permits, set by the Commission at its December 19, 2023 meeting, after the Commission’s directive to consult with the Departments of Water Supply.

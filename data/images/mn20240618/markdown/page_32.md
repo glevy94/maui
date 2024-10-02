@@ -1,6 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
 
 **ANDREW CHOY:** I think that is a question that we would like to know the answer, as well. Anecdotally, we've had some good working relationships with various counties of water supply. We continue to have dynamic conversations with them on how to fulfill the obligation of the Hawaiian Homes Commission Act as a responsibility of the entire State, not just the Hawaiian Home Lands Department. We do feel that there is some level of collaboration and contribution needed from all parties. What that looks like is on a case-by-case basis.
 

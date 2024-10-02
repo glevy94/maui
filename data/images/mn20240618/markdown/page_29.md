@@ -1,7 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
-
 agriculture and industrial use uses. That's going to be a really thorny question about what part of that is a part of this.
 
 **COMMISSIONER MEYER:** Water to Hawaiian Homes, as well. Water to Hawaiian Homes beneficiaries, as well.

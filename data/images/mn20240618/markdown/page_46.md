@@ -1,6 +1,4 @@
 ```markdown
-June 18, 2024  
-Minutes  
 
 # WRITTEN TESTIMONIES RECEIVED:
 
