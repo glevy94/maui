@@ -1,0 +1,16 @@
+```markdown
+June 18, 2024  
+Minutes  
+
+**ANDREW CHOY:** Correct, I think there are good examples of other collaboration between Commission staff and the Department in other arenas.  
+
+**RYAN IMATA:** Sorry, can I add in that the December, this Commission decision specifically identified that we talk to Departments of Water Supply and come back with a decision. You guys identified that we needed to talk with Department of Water Supplies which I was trying to comply with. I also recognized that I think it would have been a good idea to reach out to Jonathan. Should I have reached out to him earlier? I mean maybe, but I did reach out to him to see if he had comments on it and I alerted him to the submittal and wanted him to be able to provide feedback today.  
+
+**DEPUTY UYENO:** Chair, Keola Talaroc is also on. He had wanted to testify earlier, was having issues, but he's available now if you want.  
+
+**CHAIR CHANG:** I did close public comments, but Keola, go ahead if you wanted to provide comments.  
+
+**KEOLA TALAROC, ALPHA INC.:** Aloha Chair and Commissioners, my name is Keola Talaroc. I'm the drillings operation manager for Alpha Inc. I just wanted to give a perspective from the drilling contractor side because that hasn't been presented. For your guys' meetings, you guys hold them once a month. If we can achieve two permits per meeting, that would only be 24 a year. To say that wouldn't slow down the permitting process or affect things other than just time is…what I'm trying to say, sorry…we're affecting more things by putting a lot of red tape for small wells that don't have a large of an effect. In quantity, if we have a bunch of small wells, it might have a big effect, but for how much resources we're spending to look at a well that's less than 27 gallons a minute, we could be spending that same time looking at larger wells that present possibly bigger issues. On the second hand, I also want to talk about the Ka Paʻakai Analysis and developing a framework for what we need to answer. There's a bunch of questions and it leads to things that we can't answer 100% correctly without having data. We want to be able to correctly answer these questions, but there's questions like what kind of impact do the wells have on the environment, what kind of impact do they have on near and offshore fisheries? These are things that without data, applicants, not only drilling companies but people going in for groundwater use permits, they'll have a really difficult time answering. That's all I wanted to say, thank you for letting me speak.  
+
+**CHAIR CHANG:** I appreciate you being here. Keola, can I ask you what's been the difference in the permitting time from last year December to today? Since everything has had to come before the Commission, what kind of impact has that had on your business from December 2023 to today?
+```
