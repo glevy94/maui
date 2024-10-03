@@ -1,2 +1,16 @@
 __pycache__
 *.wav
+/MinerU/
+/output/
+/output_ocr/
+/output_txt/
+/PDF-Extract-Kit-main/
+/transcription/
+/audio_files/
+/data/adobe_pdf_text/
+/data/auto/
+/data/temp_data/
+/data/whisper_transcription/
+/data/open_parse/
+.DS_Store
+/data/minutes_struct_.ipynb
