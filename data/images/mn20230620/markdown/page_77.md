@@ -1,0 +1,7 @@
+```
+So going to the next slide, you'll see that there -- there were some -- I think a little bit of decline prior to 2010. We're trying -- still trying to figure out what that's attributed to, but as you can see, since -- since around 2010-2011, this is the water table. This is the top of the transition zone, this is the midpoint of the transition zone, and this is seawater. And I will note that, again, the -- the brackish up-flow has kind of made us question the thickness of the -- of the brackish lens, but I will also note that -- this gets a little bit technical, but we have a way of estimating the midpoint of the transition zone through the -- through the Ghyben-Herzberg equation.
+
+The Ghyben-Herzberg equation takes into account the water table above mean sea level and calculates the midpoint of the transition zone is about 40 -- 40 times initial head. So if it's one foot, it's 40 feet. If it's two feet, it's 80 feet, and so on. So this line here represents what we would calculate from Ghyben-Herzberg as the midpoint of the transition zone. Fortunately, it appears that the midpoint of the transition zone is still far below the Ghyben-Herzberg calculated midpoint of the transition zone.
+
+So what is this telling us? It's telling us that based on what we know, despite the up-flow or (inaudible) flow of the -- of the brackish water, we think that it's both relatively stable and relatively healthy because this midpoint.
+```

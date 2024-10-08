@@ -1,0 +1,7 @@
+```
+regional watershed plans. I call it systems thinking, but it could -- you know, the way I look at it, the goal is watershed health, holistic resource management, and self-sufficient and sustainable communities. We recognize that there's an interrelationship between mauka and makai, including the coastal resources, the conservation districts, the ag zones, the urban zones, and the nearshore waters, but also, what happens aboveground may affect what's underground in terms of contamination. What sets the ahupua'a model apart from traditional integrated resource plans is -- the stewardship and kuleana that comes with the ahupua'a model around land, water, people, and culture. It's the culture that affects behaviors, and by improving those behaviors towards conservation, no waste, recognition of where water comes from, restoration of cultural sites and fishponds and kalo, you know, all of those get folded into these behaviors so that it -- basically is the glue that supports the -- what's in the plan.
+
+Okay. So, next.
+
+So our goal is -- to balance the preservation and restoration, and management of Oʻahu watersheds, right, mauka to makai, with a sustainable ground and surface water use and development to serve present and future generations. In Chapter 1, we define this goal. We also define the five objectives of which are all -- which are applied to all of the
+```

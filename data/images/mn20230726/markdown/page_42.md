@@ -1,0 +1,7 @@
+```markdown
+GENERAL HASHIMOTO: We'll come back with whatever frequency you require, Chair Chang.
+
+CHAIR CHANG: Okay, yeah. I think we were looking at quarterly updates, so maybe the next one would be back in October, and hopefully, you'll have some greater updates. I was also hoping—you know, I think you're getting sort of an inclination from this commission about the desire to be transparent. I have greatly appreciated the updates you've provided us, sort of the candor in your process. It is so much better when you say—if you don't know, don't—you know, don't make something, but that you'll come back to us. So, again, we hope—you know, please come back to us.
+
+But in the desire for transparency, I am hoping that after the report on your findings in the outreach, that report is broadly distributed to everyone who participated and more so that they have an opportunity to provide you comments on the report as well. I think, you know, in the past, we have had other very important issues where we've had minority reports that go up that the report is, you know, reflects the authors, and it may be a majority report. There may be something—there's an opportunity for someone who—a group or, you know, entities who disagree to submit at least—at least where there's additional comments or a minority report. But please think about that as a way to continue ongoing.
+```

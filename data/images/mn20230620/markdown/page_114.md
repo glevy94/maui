@@ -1,0 +1,7 @@
+```
+in-house, it gives me much more confidence that we can make better assessments on aquifer health. So we did get four new positions. I'm in the process of trying to figure out how to fill those positions and how to write the position description, so -- but whether the Navy can contribute to that, yeah, I would love that, you know.
+
+COMMISSIONER KATAYAMA: Well, I think they're obligated to do something.
+
+CHAIR CHANG: Now, if I can add to that, so, you know, the -- well, the State of Hawai‘i, the state and the counties created this unified statement. Part of the -- the goal of this unified statement or this coalition is to bring all of the different agencies together, including the county, to hold the -- the Navy accountable for more than just remediation. I mean, so we sit on that, and, you know, my concern is it's -- it's not just water quality and water quantity, but the health of our ecosystem. Like what impact does this have to the nearshore waters, up on the streams, up mauka? So we are trying to leverage the Navy through this opportunity to require them to do more data, you know, have them responsible because there's a whole question as to, as you say, Ryan, the validation. I mean, we're only getting information from what the Navy's providing us. We are not having the opportunity to necessarily ground truth that. And that's why to me, having collaboration with other -- you know,
+```

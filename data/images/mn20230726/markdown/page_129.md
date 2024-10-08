@@ -1,0 +1,7 @@
+```markdown
+And so you may know that Oʻahu's broken up in the general plan into eight land-use districts. There are two development plan areas that are primarily urban center, basically Honolulu and then ʻEwa are the directed growth -- directed growth areas, so all the growth is directed to these areas, and that's where our infrastructure investment is concentrated. The other six land use districts are rural and urban fringe, so it's to keep the country country by moving the development towards, you know, those two districts. And the specific policies in these land use plans that are incorporated in these regional plans, they're -- these regions are very different, and so we are able to tailor each of the regional plans to the specific regions.
+
+And Act 152 for Watershed Protection, the Waiāhole Ditch Decision, the ordinance Chapter 30, our mission, you know, all provide guidance into the plan. And recently, the Mayor's Climate Change and Sea Level Rise Directive of 2018 and it was updated in 2022, I believe, brings in guidance on what to do with sea level rise. And the Ola Oʻahu Resilience Strategy is how we make the -- Oʻahu more resilient to climate change, including, you know, the facilities, but also the resources.
+
+And so today, I'm talking about East Honolulu. So, next. So we've adopted the ahupuaʻa model in these...
+```

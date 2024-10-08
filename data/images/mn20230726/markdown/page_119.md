@@ -1,0 +1,7 @@
+```markdown
+management on Oʻahu, because we're a groundwater management area except for Waiʻanae currently. Another management tool is the ability to shift allocations, reduce allocations where we may see potential impacts based on these additional studies or that could be a recommendation that we as staff look at based on this new data. So we had set a sustainable yield, we allocated based on that sustainable yield, but with this additional data and information, we may need to revisit those allocations if those impacts to springs, shorelines discharge, or other types of protected public trust uses are impacted. We might need to re-evaluate that, so (inaudible).
+
+**COMMISSIONER MIIKE:** So we wouldn't so much change the sustainable yield, but, rather, we would change allocations?
+
+**DEPUTY MANUEL:** There could be both. It could be multipronged. I think a lot of the data that -- and partnerships we've had with USGS on a lot of this research -- and, you know, UH is jumping on board with Water Resource Research Center's work. We can come at it both ways. I think the commission has adopted historically a very conservative approach to sustainable yield and always picked the bottom of these ranges. The commission could open that box up, right, and look at where there's a high demand and there's this range, and if we're not seeing impact, do we want to create a...
+```

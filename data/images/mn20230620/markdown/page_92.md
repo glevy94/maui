@@ -1,0 +1,7 @@
+```markdown
+So here's a map that shows you basically the extent of the Navy system. You can see how far -- I mean, it extends all the way out into Ford Island, and then obviously out into the West Loch portion, airport point. Again, the Waiawa Shaft is the farthest sort of -- it's not -- farthest north, I guess, on the system, and I was mentioning that the -- our Waipio mauka monitor well is like around here somewhere. This is -- this is the Navy's Aiea-Halawa Shaft, which is a small allocation, like 0.497, and this is Red Hill Shaft, which is located right next to the field tank farm, so -- and this one has the allocation of about 4 point -- I don't know, under 5 mgd.
+
+So again, here's -- here's a better map showing the location of the shafts. Here is -- here's Waiawa Shaft, here's Aiea-Halawa, here's Red Hill Shaft.
+
+So let's look at the pumpage prior to the fuel release and the resulting change in pumpage as a response. So in November of 2021 -- oh, this doesn't look good. Right? Like in -- they were pumping 0.272; they were within their allocation for Aiea-Halawa Shaft. Again, that's a small source. Waiawa Shaft, they were over-pumping at a very -- very small on a 12-month moving average, but they were over-pumping it. And Red Hill Shaft was over-pumping by about a half a million gallons per day. So this doesn't look good. Combined 12-month moving average monthly pumpage of 20.363.
+```

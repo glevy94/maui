@@ -1,0 +1,8 @@
+```
+We also permit deep monitor wells and permanent deep monitor wells, but a lot of environmental wells that are being done to assess, you know, aquifer water quality are done through -- you know, via the underground storage tank program at DOH or other environmental programs. So typically, we hadn't been -- been permitting these types of environmental monitor wells.
+
+Well, back in around, I think, 2015, and maybe prior to that, we started permitting the monitor wells for the Navy. And I think it's a good -- it's a good thing for the commission to be involved because, as we know, there's contamination in the area. For the Navy to be constructing the wells in accordance with our well standards will help us to ensure that if there's contamination in the vadose or the unsaturated zone above the aquifer, you know, adhering to our well standards will help prevent a contaminant from entering the aquifer from above. And not to say that DOH wouldn't be able to do that, but I think our well standards are -- are sufficiently designed to protect both that from happening and also from maybe perched water from entering an ungrouted annular space and entering the basal nodes. So -- so all that to say that we have been permitting Navy monitor wells. There are 23 existing Navy monitor wells right now in all -- all of these various locations. There are eight new proposed Navy monitor wells that we have applications in for that we're under -- that are under review. This shows the location of
+
+RALPH ROSENBERG COURT REPORTERS, INC.  
+808-524-2090 courtreporters@hawaii.rr.com
+```

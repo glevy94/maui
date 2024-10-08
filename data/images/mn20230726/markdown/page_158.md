@@ -1,0 +1,7 @@
+```markdown
+July 26, 2023
+
+The policy that I see missing is environmental justice. Since you have an islandwide -- while you have these eight water management systems, it is an islandwide system that you have. There should be some level of environmental justice that perhaps how you allocate the costs -- I mean, you know, again, it just kind of pains me when I think about the agricultural users down the west end who -- you know, who are asked to conserve or we may not even have water for ag, yet on the east side, we've got -- and I'm sure they're motivated, I'm sure they're doing their best, and they're trying, but I think there's gotta be some policy that drives a more equitable both distribution -- either distribution of water or distribution of costs so that, you know, some of these -- these other areas, maybe their water rates are less because they're using less. I don't know.
+
+But this slide, this presentation, I'm sorry, was a stark reality check that -- I don't know if a lot of people, you know, see the stark disparity in -- in East Honolulu versus West Honolulu. And I know you guys are caught between a rock and a hard place, but I mean, I think we, as government, have got to try to do -- do things differently when we can see such disparity -- I mean, that -- we've got all these guys on the west -- on the west end on -- you know, they're on like drought and water conservation, so -- but I am not -- I'm not just criticizing you guys. I mean, I...
+```

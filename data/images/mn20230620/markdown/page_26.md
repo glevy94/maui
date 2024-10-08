@@ -1,0 +1,7 @@
+```markdown
+helpful here. They're very -- a lot of similarities. But for sure, there are unique situations on the islands and on Maui, especially, which I'm having a fascinating time learning because, you know, I -- well, I've never seen that one before. I've -- you know, I've certainly had many of those moments, you know. So I -- you know, I bring in, you know, 40-plus years of water experience in California and Arizona. And actually, in Missouri as well, but that isn't quite as relevant because they have lots of water there. But, you know, certainly it helps and, you know, and there's certain basic principles that -- that I bring with me.
+
+For example, the value of partnerships which we just talked about. In California, there's 400 water and wastewater agencies, you know, that have to work together and, you know, not to mention the state and the federal and cities and counties and so on. And then also kind of the -- the need to have -- and I'll just say one more thing, the need to have what we call a diversified water portfolio where, you know, you need to have multiple sources of water and be -- have a resilient redundant system. And so we're working on that both in terms of the sources and then also in terms of the -- the transmission and delivery systems to make sure they're, you know, robust and redundant and can handle the -- you know, the things that always happen to disrupt the system.
+
+COMMISSIONER BUCK: All right. So thanks very much.
+```

@@ -1,0 +1,7 @@
+```
+And feel free to stop me if you have questions on specific slides or anything that I'm saying. That might be easier than -- than going -- going back at the end, but it's certainly up to -- up to you guys.
+
+So let's talk about the aquifer health and those deep monitor wells. The commission looks to aquifer health by assessing data which we plot showing historic elevations of a couple of things: The water level that we initially encounter when we drop our equipment down the well, the top at midpoint of the transition zones from fresh to saltwater.
+
+In the following slides, you're going to see data compiled from field investigations that our survey branch has done near our Red Hill facility, and these data are presented as a time series. So, first of all, if you can remember Halawa deep monitor well, Halawa deep monitor well is located on the Halawa Prison site. And this is something that we're not quite sure about, but the thickness of the freshwater lens -- and I'll show you the profile in the next slide. The thickness of the freshwater lens located near Halawa deep monitor well is obscured by an up flow of brackish water in the well. And so I'll explain that a little bit more in the next slide. However, the elevations of the top of the transition zone, midpoint of the transition zone, and the location of seawater indicate that the conditions are relatively stable in this region of the aquifer.
+```

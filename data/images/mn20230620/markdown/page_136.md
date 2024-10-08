@@ -1,0 +1,7 @@
+```
+COMMISSIONER HANNAHS: Aloha to you.
+
+COMMISSIONER BUCK: Thank you so much.
+
+CHAIR CHANG: I'm gonna let Kaleo have the last words as you both have come to know each other well. All I can say is from -- I've always -- I think it's -- what I appreciate is sort of this full circle, being part of -- you never leave DLNR. I mean, I say that because I guess I can state that firsthand. And it's -- it is a very different perspective to sit on this side of the table versus that side of the table because we do have this awesome kuleana that the decisions we make have broad implications far beyond us and our generation, but generations to come. And I have just appreciated watching you afar sitting on here, but as well as when you were with DLNR. Water and land are inseparable, and sitting here, we have the ability to always ensure that we are taking into consideration all of that and how intertwined and interconnected that we as decision-makers cannot separate that but ensure that we are considering all of those. And I always talk to the staff about staying in our lane, but I think as a decision maker, we have to take the much broader view. And I've appreciated the lens upon which you have brought to the Water Commission just that -- the broader kuleana of recognizing, again, that our decisions have broad implications, but that it is -- it is a very heavy responsibility, and you have worn that well and have accepted
+```

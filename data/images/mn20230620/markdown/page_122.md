@@ -1,0 +1,7 @@
+```
+water, we had -- we really could make the balancing. Nā Wai ʻEhā was a lot harder and -- well, apologized to staff because we know implementation of that was going to be horrible because we had private delivery systems, we had contested already with the water use, and so -- and so I know as you start dealing with Lanai, I'm so glad we didn't, Oh, let's just take this aquifer. You know, take as large a geographical piece as you can because that allows you to make the appropriate decisions.
+
+It'd be remiss not to talk about Red Hill. We talked about it a lot and -- and I'll just say shortly, I'm -- I'm okay where we are right now. We have the Navy's attention, DOH is all in, and that's good; EPA is all in, and that's good, although you can never trust a federal agency to stick up for what the state's interests are. But I still would urge in this all-in concept that the State of Hawaiʻi needs a comprehensive legal regulatory and enforcement strategy because we're gonna have to put constant pressure. And it is all about our kuleana aquifer remediation and recovery. And knock on wood, once the fuel is out, you know, the energy is gonna let down, and we are still stuck with some of the issues we've been talking about.
+
+And so, this commission unanimously recommended modifying their water permit. Take a look at their water permit. There is none; it's grandfathered in. We're giving
+```

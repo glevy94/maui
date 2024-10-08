@@ -1,0 +1,7 @@
+```markdown
+between the -- those readings are two committee meetings, and the committee is planning and sustainability. That may be outdated; this is an older graphic. What we're trying to do is have some interaction between the public meetings, the council meetings, and the water commission public hearing. The timeframes historically have been different. So the city council, once we -- once we get the neighborhood board endorsements, the city council in the past has processed and adopted the plan within about three months.
+
+So we were thinking that if we could notice the public hearing prior to us submitting it to council, and then that the public hearing would then occur such that in the -- in the first meeting, we can say -- we gather input, and then at the water commission public hearing, we can provide that input for the record. And then we go to the city council's second committee meeting, the input that we get at the water commission's public hearing can then be made record of, you know, in the -- in the city council process. Because what we wanted to do is get that interaction before the -- before the council adopts it as ordinance because once it's adopted as ordinance, it's hard to change. So we want to ensure that there's interaction and there's discussion there.
+
+And so after it's adopted by council, then it -- then it'll be submitted for adoption at the water commission.
+```

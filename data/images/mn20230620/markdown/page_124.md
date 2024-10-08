@@ -1,0 +1,7 @@
+```
+June 20, 2023
+
+ownership of water, the Water Code in '81. Sustainability, you know, is a three-legged table: Biological, social, and economic. There is no economic underpinnings for the Water Commission and the Water Code. We don't have -- we're not connected at all -- outside of potential fines and administrative fees, we don't charge anything for water. Water is not free, the public trust responsibilities that we're supposed to manage are not free, and we haven't yet made that connection. And even now, the Board of Land and Natural Resources is struggling to try to figure out -- well, at least in our designated area in the lease, how much do we charge people for water? But basically, to be sustainable, the Water Code has to have an economic underpinning, which means there needs to be some way to connect the value of the water with the management of the water resource. And so that's still an outstanding issue. I've talked to Kaleo about it a lot, I've talked to Neil about it a lot, you know.
+
+You know, when we did the watershed partnerships, we came up with the conveyance tax, and I mean, we've come up with ways to do that, but it's important that this commission -- and maybe you can hold some workshops or bring some people in, just a way to kind of have people understand. 'Cause when you talk about money and water, people -- people freak out. You know, the counties don't want to deal with it, they don't want to raise their rates, but we need to find a way that we
+```

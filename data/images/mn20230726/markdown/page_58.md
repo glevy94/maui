@@ -1,0 +1,7 @@
+```markdown
+July 26, 2023
+
+And recovery efforts that are going on, we also have -- and the Navy is committed to the long-term remediation of the site. Long after defueling, long after closure, we know that we have that responsibility to remediate that site, and those steps are beginning right now with some of the site assessments that are looking at the site in its entirety and all contaminants that may exist so that we can have a plan for what our remediation efforts may be for many, many years.
+
+In everything that we do, you know, my team is working directly with the DOH, the EPA, BWS, CWRM, USGS, and UH. Since last fall, there have been a lot of additional forums. As the general mentioned, we're briefing at whether it be the Governor's Water Committee, but we've also started -- there's SME roundtables that are conducted at both the senior level as well as the working level with the SMEs where we're pulling in folks from your team, folks from Board of Water Supply and USGS, University of Hawai‘i, all to sit down and talk about are our tactics working? Are there new issues arising, or do we need to change something that we're doing right now? As well as receive any feedback that they might be receiving from their constituents. We also meet with Ernie Lau on a very regular basis. I know that there are sometimes we don't see eye to eye on an issue, but we definitely talk it out and make sure we're hearing his perspective so that it could influence our -- our decision.
+```

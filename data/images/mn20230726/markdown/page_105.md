@@ -1,0 +1,7 @@
+```markdown
+drilled, and then we combined it with the no-withdrawal scenario, and then by comparing that to the calibrated model, we could see what the impact of current recharge changes and pumping have. Most of the changes in recharge resulted -- between these two periods have resulted in land use -- have resulted from land use changes, including agriculture.
+
+And I'm gonna show Kaua‘i for this example and this is for water -- changes in water levels. The agriculture has caused some areas to -- for water levels in some areas to increase, and that's shown by these blue patches, and in some areas it has decreased as shown in the brown areas. The blue areas in particular for Kaua‘i correspond with irrigation reservoirs that are leaking, and they enhance the groundwater recharge, so they're going to reduce the effect of groundwater withdrawals in these areas. In areas where there's a reduction in recharge and lowering of water levels, that's going to exacerbate the effects of groundwater withdrawals.
+
+Another simulation was to look at -- to the future, and this is to increase withdrawals in the future, and for this, we increased the withdrawals from conventional wells. These are the conventional vertical wells, wells that are drilled vertically, not tunnels. We did not increase the -- simulate any increases in tunnel withdrawal, but -- so just for the conventional wells. And this is a map of how the
+```

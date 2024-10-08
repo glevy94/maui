@@ -1,0 +1,7 @@
+```markdown
+DIRECTOR STUFFLEBEAN: Nice to meet you all virtually. Again, John Stufflebean. I've been the director since January, so I'm -- I'm new here. And I understand that there were many concerns and opposing testimonies in adopting the plan, and I believe that the commission deputy and his staff have worked diligently with -- with both the Department of Water Supply county staff and community members to address these concerns. So, you know, I've read through the plan, and I found that it reflects many of -- kind of the department goals and is guiding us in the right direction. And it -- it spells out strategies that both diversify our water supply, work towards solutions and work closer with other water purveyors -- there are several other water purveyors on Maui -- and with other county agencies to consider all the resources.
+
+And I want to just kind of briefly go through a few of the things that we're working on now that -- that kind of came out of the plan that are, you know, basically implementing the plan. As was said earlier, even though it hasn't been adopted, we're using it. You know, it's -- it's a very valuable plan in that it just -- it utilized so much input from the community and other sources, so --
+
+So, first of all, in terms of watershed protection, we are -- we are -- for years, we've been doing grant funding to -- to fund non-profits to do watershed protection. We're
+```

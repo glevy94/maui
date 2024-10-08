@@ -1,0 +1,7 @@
+```markdown
+the plan is not approved. So as Director Stufflebean -- you know, he gave a couple of examples of how we already lean on the plan. We're using it as the guidance for capital improvement programs and budget priorities. You know, it was adopted by ordinance. But, of course, the plan has a dual function. It should be a guidance document for the commission as well, so -- so I think that is -- you know, for us, if it was not approved, the next update will go through the whole process again with community engagement, going to our board, public hearings, new council review and approval.
+
+But if it's not approved by the commission, of course, it's not incorporated into the Hawai‘i Water Plan, so you -- you don't have a tool, you know, to serve that purpose. I think that would be the real downside, you know. There's a lot of valuable guidance in there, we believe, for the -- for the commission as well. So yes, I mean, we feel this is already -- we're gonna continue scoping out project strategies in the plan so there will be even more opportunity for community participation there over the time, so -- even revisiting demand and supply as we're scoping out this project. So it's a living document. And I just want to mahalo everyone that put so much effort into the process.
+
+COMMISSIONER KAGAWA-VIVIANI: All right. So I do have a quick question on the living nature of the document. Right now, it's a PDF posted to the county website, and as it
+```
